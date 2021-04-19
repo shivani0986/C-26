@@ -6,6 +6,4 @@ Now the paste or cream is ready .
 Put all the cream in the icecream cone avaliable in market.
 Keep it in refrigerator.
 You can put some tuttifrutti.
-Icecream is ready to enjoy your summer.
-Ingredients
-Milk , favourite cream , sugar , dryfruits , gas stove , cone , refrigerator , tuttifrutti , etc.
+Icecream is ready to serve.
